@@ -6,3 +6,5 @@ https://github.com/TheLazySquid/GimkitCheat
 https://poki.com/en/mouse
 https://whitespider.eu.org/
 https://www.youtube.com/shorts/Vh-kCIuZ9mk?feature=share
+https://github.com/TheLazySquid/GimkitCheat
+https://www.youtube.com/@Inkolock982
