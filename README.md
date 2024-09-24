@@ -5,8 +5,6 @@ https://replit.com/
 https://github.com/TheLazySquid/GimkitCheat
 https://poki.com/en/mouse
 https://whitespider.eu.org/
-https://www.youtube.com/shorts/Vh-kCIuZ9mk?feature=share
-https://github.com/TheLazySquid/GimkitCheat
 https://www.youtube.com/@Inkolock982
 https://github.com/MrFroggyBoi/memenajareads?tab=readme-ov-file <----- he is my friend
 https://www.gauthmath.com/calculator
